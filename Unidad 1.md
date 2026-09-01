@@ -83,3 +83,6 @@ La autoridad administrativa podrá practicar visitas domiciliarias únicamente p
 La correspondencia que bajo cubierta circule por las estafetas estará libre de todo registro, y su violación será penada por la ley.
 
 En tiempo de paz ningún miembro de la Fuerza Armada permanente el Ejército, la Fuerza Aérea, la Armada y la Guardia Nacional- podrá alojarse en casa particular contra la voluntad del dueño, ni imponer prestación alguna. En tiempo de guerra los militares podrán exigir alojamiento, bagajes, alimentos y otras prestaciones, en los términos que establezca la ley marcial correspondiente.
+
+***Actividad 1.4*** Propuestas de regulación
+
